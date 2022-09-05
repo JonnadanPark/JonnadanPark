@@ -4,8 +4,7 @@
 - 💞️ I’m looking to collaborate on 
 - 📫 How to reach me ...
 
-![KakaoTalk_20220905_211007614_01](https://user-images.githubusercontent.com/103117699/188446367-cd8b69e0-5a04-4596-9abd-e3654180f9a9.jpg)
-![KakaoTalk_20220905_211007614_02](https://user-images.githubusercontent.com/103117699/188446380-be4ce73d-b21e-4af1-8620-661ac8b6e258.jpg)
+![image](https://user-images.githubusercontent.com/103117699/188447040-64b1b053-9457-45e8-a3ba-b4a3bf6bbe19.png)
 
 
 <!---
