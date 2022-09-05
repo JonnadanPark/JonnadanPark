@@ -4,7 +4,9 @@
 - 💞️ I’m looking to collaborate on 
 - 📫 How to reach me ...
 
-![image](https://user-images.githubusercontent.com/103117699/188444310-98cc6458-c1ee-4c5f-b178-16ba4143872d.png)
+![KakaoTalk_20220905_211007614_01](https://user-images.githubusercontent.com/103117699/188446367-cd8b69e0-5a04-4596-9abd-e3654180f9a9.jpg)
+![KakaoTalk_20220905_211007614_02](https://user-images.githubusercontent.com/103117699/188446380-be4ce73d-b21e-4af1-8620-661ac8b6e258.jpg)
+
 
 <!---
 JonnadanPark/JonnadanPark is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
