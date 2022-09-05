@@ -4,6 +4,8 @@
 - 💞️ I’m looking to collaborate on 
 - 📫 How to reach me ...
 
+![image](https://user-images.githubusercontent.com/103117699/188444310-98cc6458-c1ee-4c5f-b178-16ba4143872d.png)
+
 <!---
 JonnadanPark/JonnadanPark is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
